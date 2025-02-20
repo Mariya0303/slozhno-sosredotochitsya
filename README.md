@@ -1,1 +1,1 @@
-https://github.com/Mariya0303/ono-tebe-nado.git
+https://github.com/Mariya0303/slozhno-sosredotochitsya
